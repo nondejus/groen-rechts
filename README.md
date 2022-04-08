@@ -1,1 +1,0 @@
-# psp-versus-groen-rechts
